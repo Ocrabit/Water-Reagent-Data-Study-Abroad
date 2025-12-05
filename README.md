@@ -1,0 +1,1 @@
+Anyone reading this can ignore it. During a trip abroad to Italy between my freshman and sophomore years, a professor at Belmont University asked us to collect a few vials of water from the fontanelle—the public drinking fountains scattered across Italy—in each city we visited to test water quality. We used metadata from pictures to time and location stamp each vial taken.
